@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jcroaeroflow
-- 👀 I’m interested in: hikes, new resturants, horror games
+- 👀 I’m interested in: hikes, new restaurants, horror games
 - 🌱 I’m currently learning: piano
 - 📫 How to reach me: slack
 - 😄 Pronouns:she/her
